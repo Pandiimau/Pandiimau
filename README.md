@@ -8,6 +8,6 @@
   
 ##
 
-[MI CV.docx](https://github.com/Pandiimau/pandiimau/files/9141932/MI.CV.docx)
+![MI CV_page-0001](https://user-images.githubusercontent.com/94711060/179775829-9d639890-8582-4daa-adfc-1c036a82ab52.jpg)
 
 
